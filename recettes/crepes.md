@@ -7,3 +7,8 @@
 Cuisson : 3 min par face, à feu vif.
 
 Servir chaud, avec du sucre.
+
+## Garnitures
+
+- sucre et citron
+- confiture
