@@ -4,6 +4,6 @@
 - 3 œufs
 - 50 cl de lait
 
-Cuisson : 2 min par face.
+Cuisson : 3 min par face, à feu vif.
 
 Servir chaud, avec du sucre.
